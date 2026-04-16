@@ -11,7 +11,7 @@ The goal of a **stake monthly bonus** is simple: reward consistent activity and 
 New users can start with a **$100 bonus** before qualifying for the stake-monthly-bonus rewards.
 
 👉 **Claim here:**
-[https://winaspin.cc/auth/register?promo=2026](https://winaspin.cc/auth/register?promo=2026)
+[Winaspin Casino](https://winaspin.cc/auth/register?promo=2026)
 
 This welcome offer gives new members a starting balance that helps unlock future monthly bonuses faster.
 
